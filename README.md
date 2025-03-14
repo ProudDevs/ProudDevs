@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...NA
 - 📫 How to reach me ...NA
 - 😄 Pronouns: ...He/Him
-- ⚡ Fun fact: ...I Created Minecraft 2D in Scratch
+- ⚡ Fun fact: ... I Am Posting Games On Itch free And Some Games Amount Limit Is Only $1.85
 
 <!---
 ProudDevs/ProudDevs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
